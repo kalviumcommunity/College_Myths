@@ -40,7 +40,7 @@ Reality: Limited funding and opportunities.
 Claim: "We help students launch startups."
 Reality: Very few receive real support.
 
-
+10.  
 
 Conclusion
 Before choosing a college, research well, talk to students, and verify claims to avoid disappointment.
